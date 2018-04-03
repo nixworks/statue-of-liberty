@@ -1,1 +1,1 @@
-# statue-of-liberty
+# statue of liberty
